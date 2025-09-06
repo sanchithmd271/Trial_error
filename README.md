@@ -1,4 +1,4 @@
 # Trial_error
 Just exploring Github
-Author- Sanchith M D
+Author- Sanchith Machimada D
 i'm so confused 
